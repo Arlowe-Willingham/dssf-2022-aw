@@ -12,28 +12,13 @@ Stella Fritzell - Digital Scholarship Graduate Assistant
 
 Karina Gonzalez - EaST Assistant
 
-Arlowe Willingham - Digital Scholarship Fellow
+Adrianna Morsey '23 - Digital Scholarship Summer Fellow
 
-## Bios
-Meet the team!
+Arlowe Willingham '24 - Digital Scholarship Summer Fellow
 
-### Staff Leaders
-Alice McGrath:
+Cameron Boucher '23 - Digital Scholarship Summer Fellow
 
-Chris Boyland:
-
-Stella Fritzell:
-
-Karina Gonzalez:
-
-### Fellows
-Adrianna Morsey '23
-
-Arlowe Willingham '24
-
-Cameron Boucher '23
-
-Rafiun Haque '25
+Rafiun Haque '25 - Digital Scholarship Summer Fellow
 
 ## Schedule
 
