@@ -27,13 +27,13 @@ Stella Fritzell:
 Karina Gonzalez:
 
 ### Fellows
-Adrianna Morsey:
+Adrianna Morsey '23
 
-Arlowe Willingham:
+Arlowe Willingham '24
 
-Cameron Boucher:
+Cameron Boucher '23
 
-Rafiun Haque:
+Rafiun Haque '25
 
 ## Schedule
 
